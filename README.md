@@ -1,1 +1,1 @@
-Bayern, Inter, Real
+Bayern, Inter, Real Madrid, City
